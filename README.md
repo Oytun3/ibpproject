@@ -12,4 +12,4 @@
 - 🧑‍💻 OYTUN YELDAN - 2010213039
 
 
-**Grup değişikliğinden dolayı kabul etmeyeceğinizi söylemiştiniz ben yine de submit etmiş olayım kabul ederseniz çok sevinirim..
+
